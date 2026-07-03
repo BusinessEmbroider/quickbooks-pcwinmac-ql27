@@ -1,4 +1,4 @@
-# 
+# Turbo QuickBooks ferramentas para Mac OS | VIP QuickBooks ferramentas para PC Windows. Com sincronização automática e modelos personalizados — otimizado para máximo desempenho em cada plataforma.
 
 
 
